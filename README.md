@@ -1,4 +1,4 @@
-# 7 Pedaços da Toscana (Itália) ❤️🤍:green_heart:
+# 7 Pedaços da Toscana (Itália) :green_heart::white_heart::heart:
 
 Testando primeira edição 🍕, 🎵, 👩‍🍳, 🎨, 📚, 🎞️, 🏛️, 🪦, 🎭, 
 
