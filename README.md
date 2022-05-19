@@ -31,9 +31,9 @@
 
 :pizza::pizza::pizza::pizza::pizza::pizza:  __CULINÁRIA__ [Pratos típicos](https://italiana.blog.br/pratos-tipicos-da-toscana/) | [Receitas](https://asdistancias.com/2019/02/13/17-pratos-tipicos-para-provar-na-toscana/)
 
-:pizza::pizza::pizza::pizza::pizza::pizza::pizza: __ESCULTURA__ [Wiki: Michelangelo](https://pt.wikipedia.org/wiki/Michelangelo)) |[YouTube: Biografia em 3 minutos](https://www.youtube.com/watch?v=-zGxPHhKYAM))
+:pizza::pizza::pizza::pizza::pizza::pizza::pizza: __ESCULTURA__ [Wiki: Michelangelo](https://pt.wikipedia.org/wiki/Michelangelo) |[YouTube: Biografia em 3 minutos](https://www.youtube.com/watch?v=-zGxPHhKYAM)
 
-:pizza::pizza::pizza::pizza::pizza::pizza::pizza::pizza: __EXTRA: CARNAVAL__ ["O carnaval de Foiano"](https://passeiosnatoscana.com/o-carnaval-de-foiano-della-chiana/))
+:pizza::pizza::pizza::pizza::pizza::pizza::pizza::pizza: __EXTRA: CARNAVAL__ ["O carnaval de Foiano"](https://passeiosnatoscana.com/o-carnaval-de-foiano-della-chiana/)
 
 
 ![Mapa-da-Toscana](https://user-images.githubusercontent.com/98847250/169179137-10663d1d-038f-4f2a-851d-0fa077383025.png)
