@@ -36,5 +36,7 @@ Uma lista sobre a região da Toscana na Itália, citando os 7 aspectos mais rele
 
 :pizza::pizza::pizza::pizza::pizza::pizza::pizza::pizza: __EXTRA: CARNAVAL__ ["O carnaval de Foiano"](shorturl.at/dpyC1)
 
- 
-### :radio: [CLIQUE E ESCUTE AO VIVO UMA RÁDIO DA TOSCANA](http://www.radios.com.br/play/133264)
+
+![Mapa-da-Toscana](https://user-images.githubusercontent.com/98847250/169179137-10663d1d-038f-4f2a-851d-0fa077383025.png)
+
+ :radio: [CLIQUE E ESCUTE AO VIVO UMA RÁDIO DA TOSCANA](http://www.radios.com.br/play/133264)
